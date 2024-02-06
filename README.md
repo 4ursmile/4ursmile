@@ -40,7 +40,7 @@
 ✔ Callme: ***He/His*** or ***TeamWorker*** 😊 <br>
 ✔ I’m currently doind reseach in **computer vision**<br>
 ✔ I’m currently learning about **deep learning** and "game development".<br>
-✔ Although I've studied computer science for 3 years, I've been passionate about game development for 4 years. I dedicate my free time to researching games, my true passion. As a result, I'm confident in my ability to proficiently use game development tools, especially Unity.<br>
+✔ Although I've studied computer science for 3 years, I've been passionate about game development for 4 years. I dedicate my free time to researching games, my true passion. As a result, I'm confident in my ability to proficiently use game development tools, especially Unity. Because I'm [Unity Junior Programmer](https://www.credly.com/badges/98b5ee24-bc75-4ac2-a7a3-c6f1ef76c4ce/linked_in_profile)😉<br>
 ✔ Ask from me anything you want, If I am alive I will answer within seconds 😉<br>
 ✔ Fun fact : *I Always try to learn something new in my meal* 😎<br><br><br><br>
  
